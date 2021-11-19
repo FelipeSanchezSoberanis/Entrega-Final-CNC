@@ -1,0 +1,1 @@
+![](../../Media/Pieza4_fresa.gif)
