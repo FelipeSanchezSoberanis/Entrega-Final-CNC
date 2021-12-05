@@ -1,1 +1,0 @@
-![](../../Media/FresaPieza3.gif)

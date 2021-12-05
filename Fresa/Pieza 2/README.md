@@ -1,1 +1,0 @@
-![](./../../Media/Pieza2.gif)
